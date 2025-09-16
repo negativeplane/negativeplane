@@ -12,7 +12,7 @@
 
 ###
 
-<p align="center">hello!! my name's sasha/mimi and im 15yrs old ^_^<br><br> im kinda awkward around people idk too well,,<br> i almost never check links so i might be in ur dni and interacted without knowing, feel free to block me if i am!<br> 20+ and 12- please dni, thank you<br> 🍏</p>
+<p align="center">hello!! my name's sasha/mimi and im 15yrs old ^_^<br><br> im kinda awkward around people idk too well,,<br> i almost never check links so i mightve been in ur dni and interacted without knowing, feel free to block me if i am!<br> 20+ and 12- please dni, thank you<br> 🍏</p>
 
 ###
 
