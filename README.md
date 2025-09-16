@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="150" src="https://static.wikia.nocookie.net/okegom/images/e/ec/PB14Gif.gif/revision/latest/scale-to-width-down/250?cb=20220122113542"  />
+  <img height="200" src="https://static.wikia.nocookie.net/okegom/images/e/ec/PB14Gif.gif/revision/latest/scale-to-width-down/250?cb=20220122113542"  />
 </div>
 
 ###
