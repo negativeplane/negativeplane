@@ -1,19 +1,19 @@
 <div align="center">
-  <img height="300" src="https://static.wikia.nocookie.net/okegom/images/e/ec/PB14Gif.gif/revision/latest/scale-to-width-down/250?cb=20220122113542"  />
+  <img height="300" src="https://files.catbox.moe/wvy8gg.gif"  />
 </div>
 
 ###
 
-<h1 align="center">woo!!woo!!woo!!</h1>
+<h3 align="center">≽(•⩊ •マ≼</h3>
 
 ###
 
-<h3 align="center">about me ↓ ( ´ ▽ ` )ﾉ</h3>
+<p align="left"><br><br><img height="30" src=https://file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/pngs/kit.png /> whisper 2 int!! im usually either with friends, offtab/afk, or making skins. but feel free to int!!<br><img height="30" src=https://file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/pngs/IMG_6508.png />do NOT copy my skins, taking inspo is okay as long as ur not copying the ENTIRE thing i'd find u and lick u<br><img height="30" src=https://file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/pngs/kit.png />i almost never check links so i mightve been in ur dni and interacted/followed without knowing, if i did then feel free to block me ദ്ദി(^_^)<br><img height="30" src=https://file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/pngs/IMG_6508.png />if im alone then feel free to cuddle/hide behind me, but beware that i might be offtab and disconnect or be afk and unresponsive !
 
 ###
 
-<p align="center">hello!! my name's sasha/mimi and im 15yrs old ^_^<br><br> im kinda awkward around people idk too well,,<br><br> i almost never check links so i mightve been in ur dni and interacted without knowing, feel free to block me if i am!<br><br> c+h and int HEAVILY encouraged!!!<br><br> 🍏</p>
+<h3 align="center">՞߹ - ߹՞</h1>
 
-###
-
-<h1 align="center">arrghhh!!</h1>
+<div align="center">
+  <img height="100" src="https://file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/pngs/IMG_4122.png"  />
+</div>
