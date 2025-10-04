@@ -12,7 +12,7 @@
 
 ###
 
-<p align="left"><br><br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif /> whisper 2 int!! im usually either with friends, offtab/afk, or making skins. but feel free to int!!<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />do NOT copy my skins, taking inspo is okay as long as ur not copying the ENTIRE thing i'd find u and lick u<br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif />i almost never check links so i mightve been in ur dni and interacted without knowing, sorry!! ^_^<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />if im alone then feel free to cuddle/hide behind me, but beware that i might be offtab or afk !
+<p align="left"><br><br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif /> whisper 2 int!! im usually either with friends, offtab/afk, or making skins. but feel free to int!!<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />do NOT copy my skins, taking inspo is okay as long as ur not copying the ENTIRE thing i'd find u and lick u<br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif />i almost never check links so i mightve been in ur dni and interacted without knowing, sorry!! ^_^<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />FEEL FREE TO C+H!!! if u wanna hide behind me go ahead idm^◡^ (unless im already with friends!)
 
 ###
 
