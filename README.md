@@ -1,4 +1,4 @@
-<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="750">
+<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="950">
 
 <p>
   <p align="center">
