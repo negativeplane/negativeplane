@@ -1,23 +1,39 @@
-<div align="center">
-  <img height="300" src="https://external-media.spacehey.net/media/ssvO3Qc628q4sIzdrTy1jYEG0kNptrK-KQHdbEnL5fvI=/https://watermelon.crd.co/assets/images/gallery18/b39b0925.gif?v=9a76615e"  />
-</div>
+<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="750">
 
-<div align="center">
-  <img height="30" src="https://external-media.spacehey.net/media/s-MycE_vbeJouiGWkS1IwePqObZjYLqblwZWzh0ugllg=/https://watermelon.crd.co/assets/images/gallery16/ffc8cdd7.gif?v=9a76615e"  />
-</div>
+<p>
+  <p align="center">
+    <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/red/IMG_6349.gif" width="55" height="250" >
+    <img src="https://64.media.tumblr.com/7631f14f171b71eb754d8acffc737c2c/tumblr_ou4pp7lq6M1uxjyz9o3_1280.png" width="400" height="350" hspace="10" >
+  <img src="https://files.catbox.moe/5lpz3j.gif" width="55" height="250" >
+</p>
 
-</div>
+</p>
+</p>
 
-<h3 align="center">≽(•⩊ •マ≼</h3>
+<p align="center">
+ $\color{#f00}{\textsf{ffti and c+h unless im already with friends !}}$        
+<p align="center">
+ $\color{#801700}{\textsf{DO NOT copy my skins ill find you and tickle you}}$        
 
-###
 
-<p align="left"><br><br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif /> whisper 2 int!! im usually either with friends, offtab/afk, or making skins. but feel free to int!!<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />do NOT copy my skins, taking inspo is okay as long as ur not copying the ENTIRE thing i'd find u and lick u<br><img height="30" src=https://i.postimg.cc/QxTdhk9V/bow.gif />i almost never check links so i mightve been in ur dni and interacted without knowing, sorry!! ^_^<br><img height="30" src=https://i.postimg.cc/x8Kr9pwG/letter.gif />FEEL FREE TO C+H!!! if u wanna hide behind me go ahead idm^◡^ (unless im already with friends!)
+<p>
+ <p align="center" >
+  <img src="https://static.wikia.nocookie.net/okegom/images/6/65/F-Emalf12.png/revision/latest?cb=20201008174300" alt="My Image">
+  <span>     $\color{#f00}{\textsf{sign ata to get his shades back or something}}$        </span>
+</pp
 
-###
 
-<h3 align="center">( ᴗ͈ˬᴗ͈)ഒ ꫂ᭪</h1>
 
-<div align="center">
-  <img height="50" src="https://external-media.spacehey.net/media/sIKK1isjc7Sz5Oi1J4ieCZ1CQIC2FsQ_EA-XJkO0uIpU=/https://watermelon.crd.co/assets/images/gallery21/4d630744.gif?v=9a76615e"  />
-</div>
+<p>
+           <div align="center">
+           <a href=https://pronouns.cc/@syachisan>
+<img width="9%" height="9%" alt="Untitled422_20251115174945" src="https://static.wikia.nocookie.net/okegom/images/c/ce/Emalf.png/revision/latest?cb=20210727185216" />
+           </a>
+           <a href=https://prettyrbbon.straw.page>
+<img width="9%" height="9%" src="https://static.wikia.nocookie.net/okegom/images/f/fb/Poemi.png/revision/latest?cb=20210727203312" />
+           </a>
+         </div>
+         <p align="center">
+           $\color{#801717}{\textsf{1) prns.cc - 2) straw }}$
+         </p>
+</p>
