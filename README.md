@@ -29,7 +29,7 @@
            <a href=https://pronouns.cc/@syachisan>
 <img width="9%" height="9%" alt="Untitled422_20251115174945" src="https://static.wikia.nocookie.net/okegom/images/f/fe/Wadda_sprite_sailor_outfit.png/revision/latest?cb=20141011132544" />
            </a>
-           <a href=https://tsubakichan.straw.page>
+           <a href=https://prettyrbbon.straw.page>
 <img width="9%" height="9%" src="https://static.wikia.nocookie.net/okegom/images/9/96/Wadda_outfit_sprite.png/revision/latest?cb=20250212182240" />
            </a>
          </div>
